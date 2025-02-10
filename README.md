@@ -1,2 +1,0 @@
-# imbalavamsi.github.io
-Resume
